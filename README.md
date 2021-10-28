@@ -24,4 +24,4 @@ My name is pxce, I am 14 years old, I am in High School l I have been passionate
 - 💬 Ask me about project or video on youtube 
 
 - 💼 How to contact me: 
-   - <a><img height="25" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/discord/discord.png"> [Discord](https://discord.com/): pxce#9651 </a>
+   - <a><img height="25" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/discord/discord.png"> [Discord](https://discord.com/): Alef#0001 </a>
